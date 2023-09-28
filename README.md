@@ -1,2 +1,2 @@
 # blog
-in progress. dont look. 
+not real. dont look. 
